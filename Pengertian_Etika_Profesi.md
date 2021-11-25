@@ -1,4 +1,4 @@
-### Pengertian Etika Profesi
+###   📫 Pengertian Etika Profesi
 
 Apa yang dimaksud dengan etika profesi (professional ethics)? Secara umum, pengertian etika profesi adalah suatu sikap etis yang dimiliki seorang profesional 
 sebagai bagian integral dari sikap hidup dalam mengembang tugasnya serta menerapkan norma-norma etis umum pada bidang-bidang khusus (profesi) dalam kehidupan manusia.
